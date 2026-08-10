@@ -1,1 +1,0 @@
-# Okomatech-ai
